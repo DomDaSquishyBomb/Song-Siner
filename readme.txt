@@ -1,0 +1,2 @@
+//This work is licensed under CC BY-NC-SA 4.0. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc-sa/4.0/
+As a part of an additional legality, the within rights of new collaborators shall not be decided on until an official document is agreed upon and signed by Dominic Le and Hassan Khan.
